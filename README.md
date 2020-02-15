@@ -11,3 +11,6 @@ Everybody has h[is/er] focus, so I, instead follow who you are, I follow the thi
 
 [Without followers, evil cannot spread.](https://www.hollywoodreporter.com/heat-vision/star-trek-quotes-leonard-nimoy-778305)
                 -- Spock, "And The Children Shall Lead", stardate 5029.5
+
+
+So, I suggest you do that as well.
